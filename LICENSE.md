@@ -1,4 +1,4 @@
-#  
+#  hidden Script for natural disaster survival offers the most advanced natural disaster survival Script, with anti-ban and private server access.
 
 
 
